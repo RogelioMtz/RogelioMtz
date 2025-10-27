@@ -12,7 +12,7 @@
 
 - Fun fact **I listen to music all the time**
 
-- Know about my experiences **[here's my resumé](https://1drv.ms/b/c/6e9f3632bbdce5d2/EWDMyI0l93pMlOurgBLJzz8Bez1qbASeBx3LKxS3Z_M46A?e=k2sAK6)**
+- Want to know about my experience? **[Here's my resumé](https://1drv.ms/b/c/6e9f3632bbdce5d2/EWDMyI0l93pMlOurgBLJzz8Bez1qbASeBx3LKxS3Z_M46A?e=k2sAK6)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
