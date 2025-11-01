@@ -2,15 +2,13 @@
 
 ### New grad Software and Networks Enginner 
 
-- I'm currently working on **An audio processing software with equalization recommendations based on-environment sound samples, and live input.**
+- I'm currently working on **an audio processing software with equalization recommendations based on-environment sound samples, and live input.**
 
 - I'm currently learning **Typescript as the base for web development.**
 
-- I'm looking to collaborate on **Audio related software development projects.**
+- I'm looking to collaborate on **audio related software development projects.**
 
 - How to reach me **rommjr95@gmail.com**
-
-- Fun fact **I listen to music all the time**
 
 - Want to know about my experience? **[Here's my resumé](https://1drv.ms/b/c/6e9f3632bbdce5d2/EWDMyI0l93pMlOurgBLJzz8Bez1qbASeBx3LKxS3Z_M46A?e=k2sAK6)**
 
